@@ -1,0 +1,1 @@
+//Hi! My name is Arushi! A fun fact about me is that I used to cry everytime I would go to an optometrist as a kid. Something that I am listening to right now is Drake's new album: For all the dogs. 
